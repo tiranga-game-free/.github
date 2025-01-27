@@ -1,12 +1,12 @@
 # Tiranga Club: Tiranga Login Now
 
-## Tiranga Game : 👉 [Tiranga Games](http://www.sikkim8.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
 
 # What is Tiranga Club?
 
 Tiranga Club is a thrilling Indian gaming platform that merges entertainment with opportunities to win real money. This mobile app offers an extensive selection of casual, skill-based, and prediction-based games. Popular games include Color Prediction, Win Go, Aviator, and Rummy, providing players with the chance to enjoy gaming while earning real cash. With a user-friendly design and secure payment options, Tiranga Club is ideal for those seeking fun and rewards in a safe environment.
 
-## Tiranga Game : 👉 [Tiranga Games](http://www.sikkim8.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
 
 ## Key Features of Tiranga Club
 - **Diverse Game Collection**: Play exciting games such as Color Prediction, Win Go, Aviator, and Rummy.
